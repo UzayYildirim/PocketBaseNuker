@@ -1,3 +1,4 @@
+![PocketBase Nuker Logo](https://i.ibb.co/mFNLfXZV/image.png)
 
 ## PocketBase Nuker ☢️
 
